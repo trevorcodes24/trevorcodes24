@@ -52,4 +52,4 @@ My current priority is developing the technical and mathematical depth needed fo
 
 ## Connect
 
-- https://www.linkedin.com/in/trevorgatimu/
+- [LinkedIn](https://www.linkedin.com/in/trevorgatimu/)
